@@ -17,3 +17,5 @@ seconed : i build a whole new charcter like i was never void mantis so people th
 
 
 in the finsh im really sorry for skidding @the revistor @delayed @murilo gaming @burlone @everyone i skidded from them
+
+@the revistor @delayed @murilo gaming @burlone anyone of those if you frogive me and its ok i can get back and like ive never skidded dm me in @1fch
